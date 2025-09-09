@@ -9,3 +9,5 @@ I don't have any idea about coding or programming so I'm expecting you to help m
 My father name ia Sitraputhuran, he is an Accounts manager.
 My mother name is Chitra, she is Homemaker.
 My elder sister name is Vaishnavi, she is preparing for her CA Final Examination.
+#My inspiration,
+My sister is my inspiratrion, because she is working so hard to reach her goal, even though she was not interested to pursue CA as her career she made herself adapted to her choice and now she is very desperate to achieve in  her life.
